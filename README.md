@@ -1,6 +1,6 @@
 # oskalovessweden
 why jot? 
-# lmao
+# LMAO
 
 
 # AYY
