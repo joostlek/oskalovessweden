@@ -1,5 +1,5 @@
 # oskalovessweden
-why jot? 
+why not? 
 # lmao
 
 
